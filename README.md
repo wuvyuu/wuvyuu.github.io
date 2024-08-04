@@ -1,2 +1,0 @@
-# wuvyuu.github.io
-Buatnembakcrush
